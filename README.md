@@ -1,2 +1,0 @@
-# ProyecroExtructura2
-Si
